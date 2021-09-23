@@ -1,1 +1,1 @@
-arithmetic 学习
+arithmetic 学习、提高自己
